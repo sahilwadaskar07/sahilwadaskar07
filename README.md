@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/62dfab68-a83a-482c-836d-09498f3359e6)<h1 align="center">Hey 👋 I'm Sahil Wadaskar</h1>  
+
 
 ###
 
